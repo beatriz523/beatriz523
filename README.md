@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @beatriz523
+- 👀 I’m interested in in learn
+- 🌱 I’m currently learning in the first year of high school
+- 💞️ I’m looking to collaborate on 
+- 📫 How to reach me instagram beatri1_523
